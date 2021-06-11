@@ -4,6 +4,7 @@ This is a personal project that I want to do. This project consists of creating 
 I also dont know how to code so this will take a lot longer than orignally planned.
 
 If you would like to help please join my discord server in the link below:
+https://discord.gg/5rVpHzquEZ
 
 # Goals
 
